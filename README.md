@@ -90,9 +90,9 @@ Free to use, learn from, and enhance!
 
 ## 🙋‍♂️ Author
 
-**Srujan Kumar Cheekati**  
-- 📧 Email: srujanch75@gmail.com
-- 🌐 LinkedIn: https://www.linkedin.com/in/srujan-kumar-cheekati-101828281/
+**Lakshmi Tejaswini Sudanagunta**  
+- 📧 Email: lakshmitejaswinisudanagunta@gmail.com
+- 🌐 LinkedIn: https://www.linkedin.com/in/lakshmi-tejaswini-sudanagunta-805033291/
 
 
 
